@@ -140,7 +140,7 @@ Ah — you’ve framed it in a way that slots perfectly into your **ontology ↔
 
 ---
 
-## **3. The Sandwich = Agency (Illusion, Fetters, Dude Abiding)**
+## **3. The Sandwich = Price (Agency, Illusion, Fetters, Dude-Abides)**
 
 This is the *market in motion*:
 
